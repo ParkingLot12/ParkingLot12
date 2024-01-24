@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ParkingLot12
+- 👀 I’m interested in gaming
+- 💞️ I’m looking to collaborate on games
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: i eat children
